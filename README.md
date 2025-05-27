@@ -1,4 +1,4 @@
-# Hi, I'm Mehdi Mansour 👋
+# Hi, I'm Touaria Sami 👋
 
 
 > ⚡ **Current Status:** Just vibing through commits
